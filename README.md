@@ -1,4 +1,4 @@
-### Hi there ![](/animated-emoticons-2018-1.gif) I am [Ketan Vithalbhai Patel (કેતન વિઠ્ઠલભાઇ પટેલ)](https://www.linkedin.com/in/ketanvpatel/)  
+### Hi there <img src="/animated-emoticons-2018-1.gif" width="50"> I am [Ketan Vithalbhai Patel (કેતન વિઠ્ઠલભાઇ પટેલ)](https://www.linkedin.com/in/ketanvpatel/)  
 
 #### Jay Shri Swaminarayan - જય શ્રી સ્વામિનારાયણ
 #### Jay Shri Krishna - જય શ્રી કૃષ્ણ
