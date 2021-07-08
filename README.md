@@ -1,8 +1,9 @@
-### Hi there ![]() I am [Ketan Vithalbhai Patel (કેતન વિઠ્ઠલભાઇ પટેલ)](https://www.linkedin.com/in/ketanvpatel/)  
+### Hi there ![](/animated-emoticons-2018-1.gif) I am [Ketan Vithalbhai Patel (કેતન વિઠ્ઠલભાઇ પટેલ)](https://www.linkedin.com/in/ketanvpatel/)  
 
+#### Jay Shri Swaminarayan - જય શ્રી સ્વામિનારાયણ
+#### Jay Shri Krishna - જય શ્રી કૃષ્ણ
 
-<!--
-**karma-786/karma-786** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Work in progress to update!
 
 Here are some ideas to get you started:
 
